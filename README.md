@@ -143,3 +143,16 @@ Przetłumaczono z www.DeepL.com/Translator (wersja darmowa)
 PRZETESTOWAŁEM TĘ METODĘ I DZIAŁA ONA DO DZIŚ! ENJOY! TERAZ ZOSTAW PODOBIZNĘ LUB ZOSTAŃ ZGŁOSZONY I ZAKAZANY ZA LEECHING!  Pepelove Heart  
 
 Przetłumaczono z www.DeepL.com/Translator (wersja darmowa)
+
+1. Kupujcie ubrania, które chcecie maksymalnie 300$/400$
+2. Poczekaj, aż przybędą ubrania. Upewnij się, że nie podpiszesz
+3. Idź do sklepu charytatywnego i poszukaj ubrań tej samej marki i tego samego typu, więc jeśli kupiłeś koszulę nike.Kup koszulę nike nie musi być tego samego koloru lub rozmiaru.
+4. Teraz przejdź do działu Zwroty/kontakt Nike/Adidas/Puma i wybierz opis produktu, który nie pasuje lub wybierz coś złego z produktem.
+5. Teraz poproszą o jakieś informacje zwrotne, powiedzą, że się rozerwał, zniknął, albo nie spodziewałeś się tego
+6. Teraz wyślą Ci metkę zwrotną, wydrukują ją, wyjmą prawdziwe ubranie z oryginalnego opakowania
+7. Umieść w sklepie charytatywnym ubrania, na które wydałeś 10 funtów/$15 w opakowaniu z metką zwrotną
+8. poczekać kilka dni 7-14 i otrzymać zwrot bomu.
+9. Pomagałeś też organizacji charytatywnej, więc poklep się po plecach.                   
+
+
+Przetłumaczono z www.DeepL.com/Translator (wersja darmowa)
